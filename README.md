@@ -1,1 +1,0 @@
-# tanish-bilish-bank
